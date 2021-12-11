@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hammadaali02
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning
+- 💞️ I’m looking to Collab soon
+- 📫 How to reach me hammadaali02@gmail.com
